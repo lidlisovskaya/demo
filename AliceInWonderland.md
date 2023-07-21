@@ -130,7 +130,7 @@ content
 new content
 ---
 51
-<img align="left" width="200" src="https://www.gutenberg.org/files/19778/19778-h/images/p048.png" />
+<img align="left" src="https://www.gutenberg.org/files/19778/19778-h/images/p048.png" />
 
 this fireplace is narrow,
 to be sure, but I think
