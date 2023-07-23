@@ -102,7 +102,7 @@ pictures or conversations in it, “ and what is
 
 ---
 51
-<img align="left" src="https://www.gutenberg.org/files/19778/19778-h/images/p048.png" alt="Bill the Lizard">
+![THE RABBIT SENDS IN A LITTLE BILL](https://www.gutenberg.org/files/19778/19778-h/images/p048.png)
 
 this fireplace is narrow,  
 to be sure, but I think  
