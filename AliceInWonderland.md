@@ -99,35 +99,7 @@ sitting by her sister on the bank, and of having
 nothing to do: once or twice she had peeped into  
 the book her sister was reading, but it had no  
 pictures or conversations in it, “ and what is  
----
-51
 
-![THE RABBIT SENDS IN A LITTLE BILL](https://www.adobe.com/be_en/active-use/pdf/Alice_in_Wonderland.pdf)
-this fireplace is narrow,
-to be sure, but I think
-I can kick a little !”
-She drew her foot as
-far down the chimney as
-she could, and waited till
-she heard a little animal
-(she couldn ’t guess of
-what sort it was) scratching and scrambling about
-in the chimney close above
-her : then, saying to herself, “This is Bill,” she
-gave one sharp kick, and
-waited to see what would
-happen next.
-The first thing she
-heard was a general
-chorus of “There goes
-Bill !” then the Rabbit’s
-voice alone—“Catch him,
-you by the hedge !” then
----
-53
-
-content
-new content
 ---
 51
 <img align="left" src="https://www.gutenberg.org/files/19778/19778-h/images/p048.png" alt="Bill the Lizard">
@@ -152,9 +124,107 @@ chorus of “There goes
 Bill !” then the Rabbit’s  
 voice alone—“Catch him,  
 you by the hedge !” then  
----
-53
 
-content
-new content
 ---
+54
+
+as she could, and soon found herself safe in a  
+thick wood.  
+“ The first thing I’ve got to do,” said Alice  
+to herself, as she wandered about in the wood,  
+“ is to grow to my right size again ; and the  
+second thing is to find my way into that lovely  
+garden. I think that will be the best plan.”  
+It sounded an excellent plan, no doubt, and  
+very neatly and simply arranged ; the only  
+difficulty was, that she had not the smallest  
+idea how to set about it ; and while she was  
+peering about anxiously among the trees, a  
+little sharp bark just over her head made her  
+look up in a great hurry.  
+An enormous puppy was looking down at  
+her with large round eyes, and feebly stretching  
+out one paw, trying to touch her. “ Poor little  
+thing !” said Alice in a coaxing tone, and she  
+tried hard to whistle to it, but she was terribly  
+frightened all the time at the thought that it  
+might be hungry, in which case it would be very  
+likely to eat her up in spite of all her coaxing.  
+
+---
+55
+
+![THE RABBIT SENDS IN A LITTLE BILL](https://www.gutenberg.org/files/19778/19778-h/images/p052.png)  
+Hardly knowing what she did, she picked up  
+a little bit of stick, and held it out to the  
+puppy ; whereupon the puppy jumped into the  
+air off all its feet at once, with a yelp of  
+
+---
+83
+ 
+ “ They all can,” said the Duchess ; “ and  
+most of ’em do.”  
+“ I don’t know of any that do,” Alice said  
+very politely, feeling quite pleased to have got  
+into a conversation.  
+“ You don’t know much,” said the Duchess ;  
+“ and that ’s a fact.”  
+Alice did not at all like the tone of this  
+remark, and thought it would be as well to  
+introduce some other subject of conversation.  
+While she was trying to fix on one, the cook  
+took the cauldron of soup off the fire, and at  
+once set to work throwing everything within  
+her reach at the Duchess and the baby—the  
+fire-irons came first ; then followed a shower  
+of saucepans, plates, and dishes. The Duchess  
+took no notice of them even when they hit her ;  
+and the baby was howling so much already, that  
+it was quite impossible to say whether the  
+blows hurt it or not.  
+“ Oh, _please_ mind what you ’re doing !” cried  
+Alice, jumping up and down in an agony of  
+
+---
+84
+
+terror. “ Oh, there goes his _precious_ nose !” as  
+an unusually large saucepan flew close by it,  
+and very nearly carried it off.  
+“ If everybody minded their own business,”  
+said the Duchess in a hoarse growl, “ the world  
+would go round a deal faster than it does.”  
+“ Which would _not_ be an advantage,” said  
+Alice, who felt very glad to get an opportunity  
+of showing off a little of her knowledge. “ Just  
+think of what work it would make with the day  
+and night ! You see the earth takes twenty-four  
+hours to turn round on its axis——”  
+“ Talking of axes,” said the Duchess, “ chop  
+off her head !”  
+Alice glanced rather anxiously at the cook,  
+to see if she meant to take the hint ; but the  
+cook was busily stirring the soup, and seemed not  
+to be listening, so she went on again : “ Twenty-  
+four hours, I _think_ ; or is it twelve ? I——”  
+“ Oh, don’t bother _me_,” said the Duchess ; “ I  
+never could abide figures.” And with that she  
+began nursing her child again, singing a sort of  
+
+---
+97
+
+![A MAD TEA-PARTY](https://www.gutenberg.org/files/19778/19778-h/images/p090.png)
+
+The Hatter opened his eyes very wide on  
+hearing this; but all he said was, “Why is a  
+raven like a writing-desk ?”  
+“ Come, we shall have some fun now !”  
+thought Alice. “I ’m glad they’ve begun ask-  
+ing riddles—I believe I can guess that,” she  
+added aloud.  
+“Do you mean that you think you can find  
+out the answer to it ?” said the March Hare.  
+“Exactly so,” said Alice.  
+“Then you should say what you mean,” the
