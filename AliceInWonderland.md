@@ -105,26 +105,26 @@ pictures or conversations in it, “ and what is
 
 ![THE RABBIT SENDS IN A LITTLE BILL](https://www.gutenberg.org/files/19778/19778-h/images/p048.png)
 
-this fireplace is narrow,
-to be sure, but I think
-I can kick a little !”
-She drew her foot as
-far down the chimney as
-she could, and waited till
-she heard a little animal
-(she couldn ’t guess of
-what sort it was) scratching and scrambling about
-in the chimney close above
-her : then, saying to herself, “This is Bill,” she
-gave one sharp kick, and
-waited to see what would
-happen next. 
-The first thing she
-heard was a general
-chorus of “There goes
-Bill !” then the Rabbit’s
-voice alone—“Catch him,
-you by the hedge !” then
+this fireplace is narrow, 
+to be sure, but I think 
+I can kick a little !” 
+She drew her foot as 
+far down the chimney as 
+she could, and waited till 
+she heard a little animal 
+(she couldn ’t guess of 
+what sort it was) scratching and scrambling about 
+in the chimney close above 
+her : then, saying to herself, “This is Bill,” she 
+gave one sharp kick, and 
+waited to see what would 
+happen next.  
+The first thing she 
+heard was a general 
+chorus of “There goes 
+Bill !” then the Rabbit’s 
+voice alone—“Catch him, 
+you by the hedge !” then 
 
 ---
 54
